@@ -10,8 +10,8 @@ Artificial intelligence-empowered attention economy has become the prevailing po
 1. [Hyperhyperhyper](#1.-hyperhyperhyper)
 2. [Reward Mechanisms and the Quest for Happiness](#reward-mechanisms-and-the-quest-for-happiness)
 3. [Colonized Cognition in the Age of the Algorithm](#colonized-cognition-in-the-age-of-the-algorithm)
-4. [The Hypoconnectivist Manifesto](#the-hypoconnectivist-manifesto)
-[Demand for Change](#demand-for-change)
+4. [The Hypoconnectivist Manifesto](#the-hypoconnectivist-manifesto)<br>
+[Demand for Change](#demand-for-change)<br>
 [Bibliography](#bibliography)
 
 
@@ -201,7 +201,7 @@ Computation restructures and frames our abilities to socialize, learn, create an
 Within these systems human cognition can operate below the level of self-awareness, where the most primitive cognitive mechanisms for thinking, remembering and speaking have a root in bodily perceptions and affections. The capabilities of nonconscious cognition are activated to execute actions at a speed that is not accessed by the conscious order of logic. Since networked media has penetrated our precognitive neurological systems, technology will soon if not already now know what we want to think, where we want to go and what we want to purchase before we do. 
 
 
-## Hypoconnectivist Manifesto
+## The Hypoconnectivist Manifesto
 We have entered an era of intangible human traffic, <br>
 where instead of trading our flesh and our muscle power,<br>
 Our digital selves are freely sold and bought on the market.<br>
