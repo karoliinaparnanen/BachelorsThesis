@@ -5,6 +5,17 @@ Bachelor's Thesis by Karoliina Pärnänen, KABK 2020-21
 Artificial intelligence-empowered attention economy has become the prevailing power structure of the 21st century, where the brain is the new factory, behavior modification is the new business model and attention is the new currency. In the name of profit, technology companies have increasing incentives to monitor and streamline our brain activity. To improve predictability, they aim to eliminate contingency by targeting our decision-making processes below the level of self-awareness. Social media plays a key role in the harvesting of behavioral data, but its effects on our well-being are being increasingly questioned. We live in a society that greatly values free human will, but in the light of recent discoveries we have learned that the mind might be more receptive to suggestion than we thought. If our thoughts and desires are indeed persuadable, where does the future of humanity lie?
 
 
+## Table of Contents
+[Introduction](#introduction)
+1. [Hyperhyperhyper](#hyperhyperhyper)
+2. [Reward Mechanisms and the Quest for Happiness](#reward-mechanisms-and-the-quest-for-happiness)
+3. [Colonized Cognition in the Age of the Algorithm](#colonized-cognition-in-the-age-of-the-algorithm)
+4. [The Hypoconnectivist Manifesto](#the-hypoconnectivist-manifesto)
+[Demand for Change](#demand-for-change)
+[Bibliography](#bibliography)
+
+
+
 ## Introduction
 The online world has become a global universal medium for nearly all information we consume (for internet usage statistics, see Figures 1–4). It has subsumed previous technological advancements such as television, radio, printing press, mail, weather forecast, clock, calculator any other thinkable technology of the not-so-distant past. These individual technologies are now consumed in a layered, unified environment of open windows, digital chimes, blinking ads and popping notifications. Since information online is often compressed and designed to be as attention-grabbing, clickable and shareable as possible, our brain also learns to absorb it in a different way — quickly, superficially and horizontally. This crucial relationship between the medium and the message was already introduced by Marshall McLuhan in his seminal text “Medium Is The Message” (McLuhan 1). Due to the ubiquity of portable smart devices and internet-of-things (IoT) in our homes and public spaces, the algorithmic way of experiencing the world becomes ever more prevalent. We increasingly externalize our thinking and decision-making power to the computer, gradually making the uncomputable the unthinkable, hindering our imagination beyond the realm of computation.
 
