@@ -265,71 +265,72 @@ But it is not that the AI or its makers are somehow evil, it is just that we hav
 Even if life within attention economy can often feel overpowering, every individual action makes a difference. If everyone protested by switching off from social media just for one day per week, we could significantly decrease the economical power of data monopolies and at the same time improve our mental health. But there’s only so much one can do as an individual. Only by fixing the problem from the root can we truly decolonize our brains from the grasp of the attention economy. This would mean introducing increased regulation and taxation of the tech industry, alongside with changing their business models and their financial incentives. In the end the commercial algorithms are creating the greatest issues, so as consumers we have the power the demand for change. Everyone loves a free service, but in the end a small subscription fee is maybe not such a bad price to pay for one’s autonomy.
 
 ## Bibliography
-Berardi, Franco, Empson, Erik, Shukaitis, Stevphen & Bove, Arianna. Precarious Rhapsody: Semiocapitalism and the Pathologies of the Post-Alpha Generation. London: Minor Compositions, 2009.
+Berardi, Franco, Empson, Erik, Shukaitis, Stevphen & Bove, Arianna. *Precarious Rhapsody: Semiocapitalism and the Pathologies of the Post-Alpha Generation.* London: Minor Compositions, 2009.
 
-“Change Your Brain: Neuroscientist Dr. Andrew Huberman | Rich Roll Podcast.” YouTube, uploaded by Rich Roll, July 20, 2020. www.youtube.com/watch?v=SwQhKFMxmDY&t=5984s, last accessed Nov 4, 2020.
+“Change Your Brain: Neuroscientist Dr. Andrew Huberman | Rich Roll Podcast.” *YouTube,* uploaded by Rich Roll, July 20, 2020. www.youtube.com/watch?v=SwQhKFMxmDY&t=5984s, last accessed Nov 4, 2020.
 
-Cooper, Anderson. “What Is ‘Brain Hacking’? Tech Insiders On Why You Should Care.” CBS News, 11 June 2017, www.cbsnews.com/news/brain-hacking-tech-insiders-60-minutes/, last accessed December 5, 2020. 
+Cooper, Anderson. “What Is ‘Brain Hacking’? Tech Insiders On Why You Should Care.” *CBS News,* 11 June 2017, www.cbsnews.com/news/brain-hacking-tech-insiders-60-minutes/, last accessed December 5, 2020. 
 
-Crary, Jonathan. 24/7: Late Capitalism and the Ends of Sleep. London: Verso, 1999, p. 33.
+Crary, Jonathan. *24/7: Late Capitalism and the Ends of Sleep.* London: Verso, 1999, p. 33.
 
-Elliott, Carl. “The Tyranny of Happiness: Ethics and Cosmetic Psychopharmacology.” Enhancing human traits: Ethical and Social Implications, edited by Erik Parens, Georgetown University Press, 2000, pp. 177-188
+Elliott, Carl. “The Tyranny of Happiness: Ethics and Cosmetic Psychopharmacology.” *Enhancing human traits: Ethical and Social Implications,* edited by Erik Parens, Georgetown University Press, 2000, pp. 177-188
 
-Gielen, Pascal, “A Chronotopy of Post-Fordist Labor.” Psychopathologies of Cognitive Capitalism: Part Two, edited by Neidich, Warren, Archive Books, 2014, pp. 195–220.
+Gielen, Pascal, “A Chronotopy of Post-Fordist Labor.” *Psychopathologies of Cognitive Capitalism: Part Two,* edited by Neidich, Warren, Archive Books, 2014, pp. 195–220.
 
-Goldstein, Kurt. Der Aufbau des Organismus. Den Haag: Nijhoff. Trans, 1934. The Organism. New York: American Book Company, 1939.
+Goldstein, Kurt. *Der Aufbau des Organismus.* Den Haag: Nijhoff. Trans, 1934. *The Organism.* New York: American Book Company, 1939.
 
-Greenfield, Patricia. Technology and Informal Education: What Is Taught, What Is Learned. Science vol. 323, no. 5910, January 2, 2009. pp 69.
+Greenfield, Patricia. Technology and Informal Education: What Is Taught, What Is Learned. *Science* vol. 323, no. 5910, January 2, 2009. pp 69.
 
-Harari, Yuval Noah. 21 Lessons For The 21st Century. VINTAGE, 2019. pp. 16–17.
+Harari, Yuval Noah. *21 Lessons For The 21st Century.* VINTAGE, 2019. pp. 16–17.
 
-Haynes, Trevor. “Dopamine, Smartphones & You: A battle for your time.” Harvard University Blog. May 1, 2018. sitn.hms.harvard.edu/flash/2018/dopamine-smartphones-battle-time/, last accessed November 25, 2020.
+Haynes, Trevor. “Dopamine, Smartphones & You: A battle for your time.” *Harvard University Blog.* May 1, 2018. sitn.hms.harvard.edu/flash/2018/dopamine-smartphones-battle-time/, last accessed November 25, 2020.
 
-Holman, Jenkins Jr., “Google and the Search for the Future,” The Wall Street Journal, August 14, 2010. www.wsj.com/articles/SB10001424052748704901104575423294099527212, last accessed December 5, 2020.
+Holman, Jenkins Jr., “Google and the Search for the Future,” *The Wall Street Journal*, August 14, 2010. www.wsj.com/articles/SB10001424052748704901104575423294099527212, last accessed December 5, 2020.
 
-Komninos, Andreas. “Our Three Brains — The Reptilian Brain.” Interaction Design Foundation. March, 2020. www.interaction-design.org/literature/article/our-three-brains-the-reptilian-brain, last accessed December 9, 2020. 
+Komninos, Andreas. “Our Three Brains — The Reptilian Brain.” *Interaction Design Foundation.* March, 2020. www.interaction-design.org/literature/article/our-three-brains-the-reptilian-brain, last accessed December 9, 2020. 
 
-Mark, Gloria et al. The cost of interrupted work: more speed and stress. CHI, 2008.
+Mark, Gloria et al. The cost of interrupted work: more speed and stress. *CHI,* 2008.
 
-McLuhan, Marshall. Understanding Media; the Extensions of Man. New York: Signet Books, 1964. pp. 99.
+McLuhan, Marshall. *Understanding Media; the Extensions of Man.* New York: Signet Books, 1964. pp. 99.
 
-McLuhan, Marshall. “Medium Is the Message.” Understanding Media; the Extensions of Man. New York: Signet Books, 1964. pp. 7–23. 
+McLuhan, Marshall. “Medium Is the Message.” *Understanding Media; the Extensions of Man.* New York: Signet Books, 1964. pp. 7–23. 
 
-“Most Valuable Companies In The World – 2020.” FXSSI. November 3, 2020. fxssi.com/top-10-most-valuable-companies-in-the-world. Last accessed 26 November, 2020.
+“Most Valuable Companies In The World – 2020.” *FXSSI.* November 3, 2020. fxssi.com/top-10-most-valuable-companies-in-the-world. Last accessed 26 November, 2020.
 
-Mintzer, Ally. “Paying Attention: The Attention Economy.” Berkeley Economic Review, edited by Pedro De Marcos, Pedro. “Paying Attention: The Attention Economy.” Berkeley Economic Reviw. March 31, 2020. 
+Mintzer, Ally. “Paying Attention: The Attention Economy.” *Berkeley Economic Review,* edited by Pedro De Marcos, Pedro. “Paying Attention: The Attention Economy.” Berkeley Economic Reviw. March 31, 2020. 
 econreview.berkeley.edu/paying-attention-the-attention-economy/, last accessed December 7, 2020. 
 
-Negri, Antonio. “Reflections on the ‘Manifesto for an Accelerationist Politics’” e-flux Journal, trans. Matteo Pasquinelli. Originally published in Italian on Euronomade. www.e-flux.com/journal/53/59877/reflections-on-the-manifesto-for-an-accelerationist-politics/, last accessed December 9, 2020.
+Negri, Antonio. “Reflections on the ‘Manifesto for an Accelerationist Politics’” *e-flux Journal,* trans. Matteo Pasquinelli. Originally published in Italian on Euronomade. www.e-flux.com/journal/53/59877/reflections-on-the-manifesto-for-an-accelerationist-politics/, last accessed December 9, 2020.
 
-Kappes, A., Harvey, A.H., Lohrenz, T. et al. “Confirmation bias in the utilization of others’ opinion strength.” Nature Neuroscience, no. 23, December 16, 2019. pp. 130-137.
+Kappes, A., Harvey, A.H., Lohrenz, T. et al. “Confirmation bias in the utilization of others’ opinion strength.” *Nature Neuroscience,* no. 23, December 16, 2019. pp. 130-137.
 
-Kramer, Peter D. Listening to Prozac. New York, N.Y., U.S.A.: Penguin Books, 1994.
+Kramer, Peter D. *Listening to Prozac.* New York, N.Y., U.S.A.: Penguin Books, 1994.
 
-Lanier, Jaron. Ten Arguments for Deleting Your Social Media Accounts Right Now. New York: Henry Holt and Company, 2018. pp. 27.
+Lanier, Jaron. *Ten Arguments for Deleting Your Social Media Accounts Right Now.* New York: Henry Holt and Company, 2018. pp. 27.
 
-Metzinger, Thomas. The Ego Tunnel: The Science of the Mind and the Myth of the Self. New York: Basic Books, 2009, pp. 234.
+Metzinger, Thomas. *The Ego Tunnel: The Science of the Mind and the Myth of the Self.* New York: Basic Books, 2009, pp. 234.
 
-Neidich, Warren. “The Brain Without Organs: Ayahuasca and the Theory of Neural Regression.” Psychopathologies of Cognitive Capitalism, Part Three, edited by Neidich Warren, Archive Books, 2017. pp. 223–248.
+Neidich, Warren. “The Brain Without Organs: Ayahuasca and the Theory of Neural Regression.” *Psychopathologies of Cognitive Capitalism, Part Three,* edited by Neidich Warren, Archive Books, 2017. pp. 223–248.
 
-Parisi, Luciana. “Automated Cognition and Capital.” Psychopathologies of Cognitive Capitalism: Part Three, edited by Neidich Warren, Archive Books, 2017. pp. 49-84.
+Parisi, Luciana. “Automated Cognition and Capital.” *Psychopathologies of Cognitive Capitalism: Part Three,* edited by Neidich Warren, Archive Books, 2017. pp. 49-84.
 
-Pasquinelli, Matteo. “The Power of Abtraction and its Antagonism: On Some Problems of Contemporary Neuroscience and the Theory of Cognitive Capitalism.” Psychopathologies of Cognitive Capitalism: Part Two, edited by Neidich, Warren, Archive Books, 2014, pp. 275–292.
+Pasquinelli, Matteo. “The Power of Abtraction and its Antagonism: On Some Problems of Contemporary Neuroscience and the Theory of Cognitive Capitalism.” *Psychopathologies of Cognitive Capitalism: Part Two,* edited by Neidich, Warren, Archive Books, 2014, pp. 275–292.
 
-Perez, Darrin. “Skinner’s Box and Video Games: How to Create Addictive Games.” LevelSkip. September 4, 2020. www.levelskip.com/how-to/Skinners-Box-and-Video-Games, last accessed December 9, 2020.
+Perez, Darrin. “Skinner’s Box and Video Games: How to Create Addictive Games.” *LevelSkip.* September 4, 2020. www.levelskip.com/how-to/Skinners-Box-and-Video-Games, last accessed December 9, 2020.
 
-The Social Dilemma. Directed by Jeff Orlowski. Produced by Larissa Rhodes, Exposure Labs, Argent Pictures & The Space Program, 2020. Netflix. www.netflix.com/watch/81254224, last accessed December 9, 2020. 
+*The Social Dilemma.* Directed by Jeff Orlowski. Produced by Larissa Rhodes, Exposure Labs, Argent Pictures & The Space Program, 2020. Netflix. www.netflix.com/watch/81254224, last accessed December 9, 2020. 
 
-Take Your Pills. Directed by Alison Klayman. Motto Pictures, 2018. Netflix. www.netflix.com/title/80117831, last accessed December 9, 2020.
+*Take Your Pills.* Directed by Alison Klayman. Motto Pictures, 2018. Netflix. www.netflix.com/title/80117831, last accessed December 9, 2020.
 
-Turing, Alan. “On computable numbers, with an application to the Entscheidungsproblem,” Proc. London Math. Soc. vol. 2, no. 42, 1936. pp. 259. Reprinted in Alan M. Turing, Collected Works: Mathematical Logic, edited by R. O. Gandy and C. E. M. Yates, North-Holland, 2001.
+Turing, Alan. “On computable numbers, with an application to the Entscheidungsproblem,” *Proc. London Math. Soc.* vol. 2, no. 42, 1936. pp. 259. Reprinted in Alan M. Turing, Collected Works: Mathematical Logic, edited by R. O. Gandy and C. E. M. Yates, North-Holland, 2001.
 
-Uncapher, Melina & Wagner, Anthony. “Media multitasking, mind and brain.” Proceedings of the National Academy of Sciences, vol. 115, no. 40, October 2, 2018, pp. 9889-9896.
+Uncapher, Melina & Wagner, Anthony. “Media multitasking, mind and brain.” *Proceedings of the National Academy of Sciences*, vol. 115, no. 40, October 2, 2018, pp. 9889-9896.
 
-Urry, John. Sociology Beyond Societies: Mobilities for the Twenty-First Century. London and New York: Routledge, 1999, pp. 137.
+Urry, John. *Sociology Beyond Societies: Mobilities for the Twenty-First Century.* London and New York: Routledge, 1999, pp. 137.
 
-We Are Social. “Digital 2020: Global Digital Overview.” We Are Social. 30 January 2020. wearesocial.com/blog/2020/01/digital-2020-3-8-billion-people-use-social-media, last accessed 26 November, 2020.
+We Are Social. “Digital 2020: Global Digital Overview.” *We Are Social.* 30 January 2020. wearesocial.com/blog/2020/01/digital-2020-3-8-billion-people-use-social-media, last accessed 26 November, 2020.
 
-Wexler, Bruce. Brain and Culture: Neuorobiology, Ideology and Social Change. Cambridge: MIT Press, 2006.
-Wolfe, Charles. “Cultured Brains and the Production of Subjectivity: The Politics of Affect(s) as an Unfinished Project.” Psychopathologies of Cognitive Capitalism: Part Two, edited by Warren Neidich, Archive Books, 2014, pp. 251.
+Wexler, Bruce. *Brain and Culture: Neuorobiology, Ideology and Social Change.* Cambridge: MIT Press, 2006.
+
+Wolfe, Charles. “Cultured Brains and the Production of Subjectivity: The Politics of Affect(s) as an Unfinished Project.” *Psychopathologies of Cognitive Capitalism: Part Two,* edited by Warren Neidich, Archive Books, 2014, pp. 251.
 
