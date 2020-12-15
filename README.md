@@ -8,8 +8,16 @@ Artificial intelligence-empowered attention economy has become the prevailing po
 ## Table of Contents
 [Introduction](#introduction)
 1. [Hyperhyperhyper](#hyperhyperhyper)
+   [Confessions of a Hyperconnected Cognitariat](#confessions-of-a-hyperconnected-cognitariat)
+   [Affects of a Hyperconnected Lifestyle on an Individual](#affects-of-a-hyperconnected-lifestyle-on-an-individual)
+   [The Biggest Psychological Experiment Ever Run on Humanity](#the-biggest-psychological-experiment-ever-run-on-humanity)
 2. [Reward Mechanisms and the Quest for Happiness](#reward-mechanisms-and-the-quest-for-happiness)
+   [Technology, Psychology, and Neuroscience Harnessed Against Us](#technology-psychology-and-neuroscience-harnessed-against-us)
+   [Psychopathologies of Cognitive Capitalism](#psychopathologies-of-cognitive-capitalism)
+   [Cosmetic Psychopharmacology](#cosmetic-psychopharmacology)
 3. [Colonized Cognition in the Age of the Algorithm](#colonized-cognition-in-the-age-of-the-algorithm)
+   [Attention Economy and the Brain](#attention-economy-and-the-brain)
+   [The Dawn of Dynamic Logic and Nonconscious Cognition](#the-dawn-of-dynamic-logic-and-nonconscious-cognition)
 4. [The Hypoconnectivist Manifesto](#the-hypoconnectivist-manifesto)<br>
 [Demand for Change](#demand-for-change)<br>
 [Bibliography](#bibliography)
