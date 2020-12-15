@@ -23,74 +23,74 @@ My own awakening to the issues of attention economy was ignited during my univer
 ## 1. Hyperhyperhyper
 
 ### Confessions of a Hyperconnected Cognitariat
-Eagerly agreeing to the terms and conditions,
-I sell my self-sufficiency to satisfy my need for simplicity.
-Oh, the soothing soundtracks of Netflix series, 
-the swipes of fingers on slick screens, user-specific search suggestions 
-And chimes of social acceptance vibrating in pockets throughout society. 
-“Ask me anything,” Siri reassures if I’m ever in doubt. 
-How comfortable to let go of all that tedious thinking, searching and decision-making!
-Ignorance truly is bliss. 
-Could you please turn the music louder? 
-My thoughts are distracting me!
+Eagerly agreeing to the terms and conditions,<br>
+I sell my self-sufficiency to satisfy my need for simplicity.<br>
+Oh, the soothing soundtracks of Netflix series, <br>
+the swipes of fingers on slick screens, user-specific search suggestions <br>
+And chimes of social acceptance vibrating in pockets throughout society. <br>
+“Ask me anything,” Siri reassures if I’m ever in doubt. <br>
+How comfortable to let go of all that tedious thinking, searching and decision-making!<br>
+Ignorance truly is bliss. <br>
+Could you please turn the music louder? <br>
+My thoughts are distracting me!<br>
 
-Bluetooth blending into the air I breathe, 
-digital footprints leaving invisible traces of me 
-and behind the scenes, trillions are made by tracking our screens. 
-Socially acceptable lifestyle choices, 
-personally tailored shopping experiences, news feeds and partner candidates. 
-Maybe my profile performs better if I get a nose job? 
-Hyperalert for incoming notifications, 
-hyperaware of my online persona, 
-hypersensitive to social approval. 
-Or maybe I’m the just the only one being hyperemotional about it?
-I now understand forgetting is forgiving for the mind, 
-but hypermnesia is just an inevitable late-stage symptom 
-of social media consumption.
+Bluetooth blending into the air I breathe, <br>
+digital footprints leaving invisible traces of me <br>
+and behind the scenes, trillions are made by tracking our screens. <br>
+Socially acceptable lifestyle choices, <br>
+personally tailored shopping experiences, news feeds and partner candidates. <br>
+Maybe my profile performs better if I get a nose job? <br>
+Hyperalert for incoming notifications, <br>
+hyperaware of my online persona, <br>
+hypersensitive to social approval. <br>
+Or maybe I’m the just the only one being hyperemotional about it?<br>
+I now understand forgetting is forgiving for the mind, <br>
+but hypermnesia is just an inevitable late-stage symptom <br>
+of social media consumption.<br>
 
-I feel powerless under the power of persuasion, populism and post-truth politics. 
-Powerless under high-frequency trading, low-frequency brainwaves, 
-short attention-spans, 
-action films, adrenaline, slot machines, 
-data brokers and dopamine.
-Moodle, Google, Gmail, Drive
-Whatsapp, Snapchat, WeChat, Spotify, 
-Pinterest, Soundcloud, Facebook, Instagram, 
-YouTube, Twitter, TikTok, Tumblr, Telegram, iTunes and Teams,
-Super Bowls, hyperboles, sugar free sodas, SSRIs and a stock market crash. 
-Ha! Who cares? Let them eat cake! 
-But next time, be sure to make it bigger, better and bolder. 
-Besides, Thatcher said there is no alternative. 
-A new iOS update is now available.
+I feel powerless under the power of persuasion, populism and post-truth politics. <br>
+Powerless under high-frequency trading, low-frequency brainwaves, <br>
+short attention-spans, <br>
+action films, adrenaline, slot machines, <br>
+data brokers and dopamine.<br>
+Moodle, Google, Gmail, Drive<br>
+Whatsapp, Snapchat, WeChat, Spotify, <br>
+Pinterest, Soundcloud, Facebook, Instagram, <br>
+YouTube, Twitter, TikTok, Tumblr, Telegram, iTunes and Teams,<br>
+Super Bowls, hyperboles, sugar free sodas, SSRIs and a stock market crash. <br>
+Ha! Who cares? Let them eat cake! <br>
+But next time, be sure to make it bigger, better and bolder. <br>
+Besides, Thatcher said there is no alternative. <br>
+A new iOS update is now available.<br>
 
-And always hail to freedom — 
-freedom of expression within community guidelines, 
-freedom of choice, 
-free global shipping, free WiFi and the free market! 
-Hail to the biopower of neuromarketing 
-and microtargeting of exciting lifestyle choices.
-Private hopes and dreams sold with a bargain today only! 
-On Black Fridays we march to hypermarkets in search of meaning. 
-Maybe a new Vitamix Pro 750 smoothie blender will make me feel better about myself? 
-Anyway, I heard they sell refurbished Apples here. 
-I feel like snacking — maybe that’s something I can eat? 
-And five t-shirts for the price of one! 
-I wonder how they got so cheap?
+And always hail to freedom — <br>
+freedom of expression within community guidelines, <br>
+freedom of choice, <br>
+free global shipping, free WiFi and the free market! <br>
+Hail to the biopower of neuromarketing <br>
+and microtargeting of exciting lifestyle choices.<br>
+Private hopes and dreams sold with a bargain today only! <br>
+On Black Fridays we march to hypermarkets in search of meaning. <br>
+Maybe a new Vitamix Pro 750 smoothie blender will make me feel better about myself? <br>
+Anyway, I heard they sell refurbished Apples here. <br>
+I feel like snacking — maybe that’s something I can eat? <br>
+And five t-shirts for the price of one! <br>
+I wonder how they got so cheap?<br>
 
-Stiff young bodies working with flexible hours on underpaid overtime. 
-Hyperefficient workers secretly hyperventilating on unpaid coffee breaks. 
-After all, someone must pay the price for all this productivity. 
-Weary eyes glued to the screen, 
-I hit the refresh button in hope of refreshment. 
-Stress sweat drips through my “Made in Bangladesh” polyester sleeves, 
-my hand shakes when shaking hands on the interview. 
-Maybe I drank too much coffee? 
-I hope my seriously ironic sneakers show off my sophisticated knowledge of subculture. 
-In the end, I was lucky to sign a project-based temporary contract. 
-Bits and bytes race through my mind as I connect to the network to Google my future colleagues. 
-Ten layers deep into random people’s profiles I hear the elevator beep. 
-Whose domain is this? Where was I going? 
-How long have I been here?
+Stiff young bodies working with flexible hours on underpaid overtime. <br>
+Hyperefficient workers secretly hyperventilating on unpaid coffee breaks. <br>
+After all, someone must pay the price for all this productivity. <br>
+Weary eyes glued to the screen, <br>
+I hit the refresh button in hope of refreshment. <br>
+Stress sweat drips through my “Made in Bangladesh” polyester sleeves, <br>
+my hand shakes when shaking hands on the interview.<br> 
+Maybe I drank too much coffee? <br>
+I hope my seriously ironic sneakers show off my sophisticated knowledge of subculture. <br>
+In the end, I was lucky to sign a project-based temporary contract. <br>
+Bits and bytes race through my mind as I connect to the network to Google my future colleagues. <br>
+Ten layers deep into random people’s profiles I hear the elevator beep. <br>
+Whose domain is this? Where was I going? <br>
+How long have I been here?<br>
 
 
 ### Affects of a Hyperconnected Lifestyle on an Individual
@@ -123,7 +123,7 @@ Before shifting up our gears to the next level of machine intelligence and autom
 
 ## 2. Reward Mechanisms and the Quest for Happiness
 
-*“If you are not paying for the product, you are the product.”*
+*“If you are not paying for the product, you are the product.”*<br>
 (The Social Dilemma, 2020)
 
 ### Technology, psychology and neuroscience harnessed against us
@@ -164,7 +164,8 @@ Leading a meaningful and authentic life has become the central purpose for Weste
 
 ## 3. Colonized Cognition in the Age of the Algorithm
 
-*“The gap between sensation, cognition, and action has become part of one continuous movement, whereby thinking to act is already an action.”* (Parisi 63)
+*“The gap between sensation, cognition, and action has become part of one continuous movement, whereby thinking to act is already an action.”*<br> 
+(Parisi 63)
 
 ### Attention Economy and the Brain
 While we have been busy pursuing our careers, shopping and performing happiness online, AI-empowered attention economy has become the prevailing power structure of the 21st century, where the brain is the new factory, behavior modification is the new business model and attention is the new currency. In the name of profit, companies have increasing incentives to monitor and streamline our brain activity, simultaneously eliminating contingency from our behavior in order to improve predictability. Attention economy has harnessed machine learning, databasing, pattern matching, searching and querying to the mission of governing the brain, reaching out to the unconscious levels of cognition and laying claims of what we should be thinking, feeling and doing. 
@@ -190,49 +191,49 @@ Within these systems human cognition can operate below the level of self-awarene
 
 
 ## 4. Hypoconnectivist Manifesto
-We have entered an era of intangible human traffic, 
-where instead of trading our flesh and our muscle power,
-Our digital selves are freely sold and bought on the market.
-Credit card purchases, financial records, employment history, cell phone location, 
-medical tests and prescriptions, topics of interest, browsing history and social media activity 
-all up for grabs at a bargain deal. 
-Millions are being made in the data broker trade,
-But all we get is free entertainment and an Instagram reel.
-Who gave you the permission to commercialize the digital me?
-Shouldn’t the ownership of one’s personal data be a basic human right?
+We have entered an era of intangible human traffic, <br>
+where instead of trading our flesh and our muscle power,<br>
+Our digital selves are freely sold and bought on the market.<br>
+Credit card purchases, financial records, employment history, cell phone location, <br>
+medical tests and prescriptions, topics of interest, browsing history and social media activity <br>
+all up for grabs at a bargain deal. <br>
+Millions are being made in the data broker trade,<br>
+But all we get is free entertainment and an Instagram reel.<br>
+Who gave you the permission to commercialize the digital me?<br>
+Shouldn’t the ownership of one’s personal data be a basic human right?<br>
 
-It seems with great power comes no responsibility.
-Addictive technology is stealing our focus, our sleep and our autonomy.
-I’m tired of parenting myself like a kid with attention deficiency.
-So please, ban the behavioral nudges, the neuromarketing and the microtargeting,
-The opinion-confirming echo chambers, the history-repeating recommendations.
-Ban unfair competition, asymmetrical power and monopolies
-that will otherwise lead to economic totalitarian regime.
-And tax the tech giants based on how much harm they cost on society,
-amplifying hate speech, fake news and diminishing productivity.
-Like medicine, why doesn’t technology need to prove its safety and efficacy?
-By applying AI-amplified human error into the power structures of authority
-Institutional racism, oppression and inequality will continue to roam free.
+It seems with great power comes no responsibility.<br>
+Addictive technology is stealing our focus, our sleep and our autonomy.<br>
+I’m tired of parenting myself like a kid with attention deficiency.<br>
+So please, ban the behavioral nudges, the neuromarketing and the microtargeting,<br>
+The opinion-confirming echo chambers, the history-repeating recommendations.<br>
+Ban unfair competition, asymmetrical power and monopolies<br>
+that will otherwise lead to economic totalitarian regime.<br>
+And tax the tech giants based on how much harm they cost on society,<br>
+amplifying hate speech, fake news and diminishing productivity.<br>
+Like medicine, why doesn’t technology need to prove its safety and efficacy?<br>
+By applying AI-amplified human error into the power structures of authority<br>
+Institutional racism, oppression and inequality will continue to roam free.<br>
 
-I’m tired of spaces of normalized corporate design, 
-And people everywhere conditioned to have identical minds.
-We need a new army of hacktivists,
-So that alternative expressions can persist
-And maybe through artistic intervention, 
-Our mind can finally recondition.
+I’m tired of spaces of normalized corporate design, <br>
+And people everywhere conditioned to have identical minds.<br>
+We need a new army of hacktivists,<br>
+So that alternative expressions can persist<br>
+And maybe through artistic intervention, <br>
+Our mind can finally recondition.<br>
 
-Your algorithms assume that the future is like the past,
-But I dare disagree.
-We all have the power to break ourselves free
-Since we’re all equipped with brain plasticity,
-And by training methods of focus and mindfulness
-We can perhaps cure the mind’s dullness 
-and reclaim our long-lost agency.
-I dare all of you to protest with some proper deep sleep
-To enter a rare state of noncommercial being
-To reclaim your right to think, feel and dream.
-And embrace the taboos of boredom, unproductivity and inefficiency,
-To decolonize your mind from the grasp of the attention economy
+Your algorithms assume that the future is like the past,<br>
+But I dare disagree.<br>
+We all have the power to break ourselves free<br>
+Since we’re all equipped with brain plasticity,<br>
+And by training methods of focus and mindfulness<br>
+We can perhaps cure the mind’s dullness <br>
+and reclaim our long-lost agency.<br>
+I dare all of you to protest with some proper deep sleep<br>
+To enter a rare state of noncommercial being<br>
+To reclaim your right to think, feel and dream.<br>
+And embrace the taboos of boredom, unproductivity and inefficiency,<br>
+To decolonize your mind from the grasp of the attention economy<br>
 
 
 ## Demand for Change
