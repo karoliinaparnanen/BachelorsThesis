@@ -31,7 +31,7 @@ The idea that our thoughts, feelings and desires could be controlled without our
 My own awakening to the issues of attention economy was ignited during my university studies in business and economics, where I completed a bachelor’s degree in Business Technology and a master’s degree in Information and Service Management. Questions related to information technology and economics followed me into my creative practice and eventually inspired me to write this thesis. I wanted compare my personal experiences of living within attention economy to the existing body of research relating to its effects on society and the individual. Triggered by my own experiences, I set out to investigate what exactly is going on in our hyperconnected minds and paralyzed bodies. I wanted to understand what embedded values and working mechanisms are hidden behind the slick user interface screens. I hoped to discover ways to decolonize the brain from the grasp of the attention economy and to find out if there’s a way to realign the goals of technology with the goals of human life.
 
 
-## 1. Hyperhyperhyper
+## Hyperhyperhyper
 
 ### Confessions of a Hyperconnected Cognitariat
 Eagerly agreeing to the terms and conditions,<br>
@@ -132,7 +132,7 @@ The new persuasive technologies have raised a concern of how they will affect ou
 Before shifting up our gears to the next level of machine intelligence and automated cognition, it’s of utmost urgency to investigate our current relationship with technology. The hazardous business models must be eliminated in order to steer away from the abusive path we have recently strayed upon. Regaining agency in our decision-making processes, remastering our focus and rediscovering values beyond eternal growth, efficiency and productivity must become the main goals of society.
 
 
-## 2. Reward Mechanisms and the Quest for Happiness
+## Reward Mechanisms and the Quest for Happiness
 
 *“If you are not paying for the product, you are the product.”*<br>
 (The Social Dilemma, 2020)
@@ -173,7 +173,7 @@ The need that cosmetic psychopharmacology ultimately responds to, is the need to
 
 Leading a meaningful and authentic life has become the central purpose for Western contemporary humans. Within the framework provided by neoliberal ideology, a meaningful life is achieved and the authentic self is discovered by pursuing a career, where the concept of work ultimately transforms into a moral quest for self-fulfilment. For the moral quest of happiness, social media becomes the perfect performance platform and a public proof of a happy and successful life. Like Elliot aptly wrote: “If you are unhappy or find life unfulfilling, there is something wrong with you, and not only should you pursue happiness, you should pursue it aggressively. Why? Because if you don’t you will be letting yourself down. You will be wasting the time you have on this earth. And if that means taking Prozac, so be it. In this way happiness is not just your right; it’s your duty.” (187) 
 
-## 3. Colonized Cognition in the Age of the Algorithm
+## Colonized Cognition in the Age of the Algorithm
 
 *“The gap between sensation, cognition, and action has become part of one continuous movement, whereby thinking to act is already an action.”*<br> 
 (Parisi 63)
@@ -201,7 +201,7 @@ Computation restructures and frames our abilities to socialize, learn, create an
 Within these systems human cognition can operate below the level of self-awareness, where the most primitive cognitive mechanisms for thinking, remembering and speaking have a root in bodily perceptions and affections. The capabilities of nonconscious cognition are activated to execute actions at a speed that is not accessed by the conscious order of logic. Since networked media has penetrated our precognitive neurological systems, technology will soon if not already now know what we want to think, where we want to go and what we want to purchase before we do. 
 
 
-## 4. Hypoconnectivist Manifesto
+## Hypoconnectivist Manifesto
 We have entered an era of intangible human traffic, <br>
 where instead of trading our flesh and our muscle power,<br>
 Our digital selves are freely sold and bought on the market.<br>
