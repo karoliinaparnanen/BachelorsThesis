@@ -7,7 +7,7 @@ Artificial intelligence-empowered attention economy has become the prevailing po
 
 ## Table of Contents
 [Introduction](#introduction)
-1. [Hyperhyperhyper](#hyperhyperhyper)
+1. [Hyperhyperhyper](#1.-hyperhyperhyper)
 2. [Reward Mechanisms and the Quest for Happiness](#reward-mechanisms-and-the-quest-for-happiness)
 3. [Colonized Cognition in the Age of the Algorithm](#colonized-cognition-in-the-age-of-the-algorithm)
 4. [The Hypoconnectivist Manifesto](#the-hypoconnectivist-manifesto)
